@@ -1,4 +1,4 @@
-
+secure Mullvad Extension | no-logs-policy + 24/7-support is the best Mullvad extension, featuring no-logs-policy and 24/7-support. Secure, fast, and optimized for privacy.
 
 
 
